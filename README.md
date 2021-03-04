@@ -1,1 +1,1 @@
-# AIC-Practice-Assignments-Quarter2
+# AIC Practice Assignments Quarter2
